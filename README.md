@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Drallz
+- My birthname names are Moloko Sepahane
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning computer sciences
 - 💞️ I’m looking to collaborate on coding diffrent things
