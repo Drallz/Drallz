@@ -3,7 +3,7 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning computer sciences
 - 💞️ I’m looking to collaborate on coding diffrent things
-- 📫 How to reach me email molokoevodia1@gmail.com
+- 📫 How to reach me email molokoevodia1@gmail.com or 2582127@students.wits.ac.za
 - 😄 Pronouns: miss
 - ⚡ Fun fact: Im a fun lady
 
